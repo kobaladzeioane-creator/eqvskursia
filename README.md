@@ -1,0 +1,2 @@
+# eqvskursia
+dajavshna eqvskursiis
